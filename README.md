@@ -1,4 +1,4 @@
-<a href="{{redirect_link}}"><img src="{{image_link}}"></a>
+<a href="https://shorten.is/wwin"><img src="https://s3.gifyu.com/images/b2PKE.gif"></a>
 
 # Betpuan 🚀 Betpuan Hızlı Bahis Yap 🚀 Betpuan Canlı Krupiyerler
 
